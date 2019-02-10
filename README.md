@@ -1,4 +1,6 @@
 ﻿# courses
+Dominguez, Margarita February 10, 2019 4:59 PM
+
 Rhau, Jennifer February 10, 2019 3:44 PM
 
 Okereke, Stephanie  February 6, 2019 12:55 PM
